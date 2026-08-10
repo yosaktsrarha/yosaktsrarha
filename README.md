@@ -1,5 +1,4 @@
-## nyoli
-👋
+## HI HETERS👋
 
 welcome di akun yosa
 
